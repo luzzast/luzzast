@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @luzzast
-- 👀 I’m interested in cycling, pc and mobile games, listen to music
+- 👀 I’m interested in fishing, pc and mobile games, work hard for money and goods.
 - 🌱 I’m currently learning UNIVERSITI UTARA MALAYSIA
-- 💞️ I’m looking to collaborate with computer store.
+- 💞️ I’m looking for something big.
 - 📫 How to reach me luqmanh418@gmail.com or ws number 019-8349615
 
 <!---
